@@ -4,7 +4,7 @@ Some history
 
 ## Ingredients
 
-- 2 Egg yolks
+- 2 egg yolks
 - 1 tbsp mustard 
 - 250ml Oil
 - 2 tsp vinegar
